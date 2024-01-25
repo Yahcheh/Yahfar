@@ -1,4 +1,4 @@
--Legend of Yahcheh-
+-Yahfar-
 An story based MMO Legend.
 RPG-MMO Game
 
